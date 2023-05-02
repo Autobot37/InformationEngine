@@ -1,4 +1,4 @@
-YOU REMEMBER EVERYTHING DOESNT MEAN YOU KNOW EVERYTHING.
+YOU REMEMBER EVERYTHING DOESNT MEAN YOU KNOW EVERYTHING..
                                                 Me->Google 
 
 So i want to build some kind of infomration processing system , i find it difficult to access and distill information through my brain.
